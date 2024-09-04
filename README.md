@@ -20,6 +20,6 @@ With a strong background in these areas, Brannon Fosterr excels in tackling intr
 
 For any inquiries or to connect with Brannon Fosterr, please use the following contact details:
 
-- **Email**: [your-email@example.com]
+- **Email**: [fosterbrannon28@gmail.com]
 
 ### Thanks !
